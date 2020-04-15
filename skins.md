@@ -17,7 +17,7 @@
 ![ ](https://i.imgur.com/i40p6cx.jpg)
 
 # [. * ⁕ ✿ santa monica ✿ ⁕ * .](https://www.dropbox.com/s/w4etxl9p0ta7agn/-%20%2B%20santa%20monica.osk?dl=0)
-![ ](https://i.imgur.com/KngZBOM.jpg)
+![ ](https://i.imgur.com/xX1y5qe.jpg)
 
 # [. * ⁕ ✿ ddddd v2 azr8 ✿ ⁕ * .](https://www.dropbox.com/s/sewl8netia8up6r/-%20%2B%20ddddd%20v2%20azr8%20ava.osk?dl=0)
 ![ ](https://i.imgur.com/n1xIMhR.jpg)
