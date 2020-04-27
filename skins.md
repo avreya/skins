@@ -10,9 +10,6 @@
 # [. * ⁕ ✿ tkova ✿ ⁕ * .](https://www.dropbox.com/s/42u0py5vmpsl0r9/-%20%2B%20tkova.osk?dl=0)
 ![ ](https://i.imgur.com/52qWZnC.jpg)
 
-# [. * ⁕ ✿ tko red ✿ ⁕ * .](https://www.dropbox.com/s/xeyqrab1jkhuf3i/-%20%2B%20tko%20red.osk?dl=0)
-![ ](https://i.imgur.com/kHD39oP.jpg)
-
 # [. * ⁕ ✿ charlotte ava ✿ ⁕ * .](https://www.dropbox.com/s/67e1abhcxaruimx/-%20%2B%20charlotte%20ava.osk?dl=0)
 ![ ](https://i.imgur.com/i40p6cx.jpg)
 
